@@ -22,7 +22,7 @@
 
 ### Friday, October 14th
 
-1.  
+1.  Jon Kimble - Augmented and Virtual Reality
 2. 
 
 ### Monday, October 17th
